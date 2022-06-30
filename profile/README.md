@@ -4,7 +4,10 @@
 
 ## 🗓 Plans
 
-under discussion
+8.2 (Tue) 16:00 ~
+8.9 (Tue) 16:00 ~
+8.16(Tue) 16:00 ~
+8.23(Tue) 16:00 ~
 
 ## 🙋🏻‍♂️ Participants
 
